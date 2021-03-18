@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tarique000
-- 👀 I’m interested in ...
+- 👀 I’m interested in Pursuing Knowledge
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on GlobalOnlineSchool Artificially Intelligent
 - 📫 How to reach me: tarique.stem@gmail.com, https://m.me/tarique.monsoor.3 ,
